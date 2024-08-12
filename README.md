@@ -1,1 +1,5 @@
-# ENGENHARIA1
+Erik Stumpf Ogliari
+
+Willian Stieven
+
+Lucas Reckziegel 
