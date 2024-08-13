@@ -1,5 +1,4 @@
-Erik Stumpf Ogliari
-
-Willian Stieven
-
-Lucas Reckziegel 
+GRUPO: 
+- Erik Stumpf Ogliari
+- Willian Stieven
+- Lucas Reckziegel 
